@@ -1,5 +1,5 @@
-# 尤物研究所
-:sunglasses::sunglasses:尤物研究所永久域名:www.mianfei7.com 地址发布:sunglasses::sunglasses:
+# 尤物研究所【永久域名:mianfei7.com】
+:sunglasses::sunglasses:尤物研究所 地址发布:sunglasses::sunglasses:
 ==
 :sunglasses:重要提醒:sunglasses:网址经常被封导致无法打开，新的网址会在此页发布，收藏本页面，永不迷路！
 :heart: 本站安全无毒，永久免费，请放心浏览！:heart: 
