@@ -3,9 +3,9 @@
 -----
 本站永久域名:mianfei7.com(免费7)，天才一秒记住本站域名。
 ------
-:heart: :point_right: 【地址一】：https://bm167.top
+:heart: :point_right: 【地址一】：https://youwu6.top
 ------
-:heart: :point_right: 【地址二】 ：https://bm168.top
+:heart: :point_right: 【地址二】 ：https://youwu7.top
 -----
 :sunglasses:重要提醒:sunglasses:网站由于行业特殊性，会经常被封导致无法打开，导致找不到回家的路，新的网址会在此页发布，收藏本页面，永不迷路！
 -----
