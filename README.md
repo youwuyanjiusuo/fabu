@@ -3,7 +3,7 @@
 -----
 本站永久域名:mianfei7.com(免费7)，天才一秒记住本站域名。
 ------
-:heart: :point_right: 【地址一】：https://youwu6.top
+:heart: :point_right: 【地址一】：https://m.youwu9.top
 ------
 :heart: :point_right: 【地址二】 ：https://youwu7.top
 -----
